@@ -1,1 +1,1 @@
-# sreevathsadb-Clearstrategy-Ronalo-Exercise
+Clearstrategy-Ronalo-Exercise
